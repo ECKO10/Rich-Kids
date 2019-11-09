@@ -1,0 +1,2 @@
+# Rich-Kids
+our goal
